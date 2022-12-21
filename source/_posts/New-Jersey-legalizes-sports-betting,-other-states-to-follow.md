@@ -1,0 +1,82 @@
+---
+title: New Jersey legalizes sports betting, other states to follow
+date: 2022-12-21 23:56:10
+categories:
+- Casino Code
+tags:
+---
+
+
+#  New Jersey legalizes sports betting, other states to follow?
+
+On June 11, 2018, the US Supreme Court overturned a 26-year-old federal ban on sports betting, striking down the Professional and Amateur Sports Protection Act (PASPA). This ruling opens up the possibility for states to legalize and regulate sports betting within their jurisdictions.
+
+A number of states have already signaled that they plan to move forward with legalization, including New Jersey, Delaware, Mississippi, West Virginia, and Rhode Island. Pennsylvania is also expected to pursue legalization in the near future.
+
+It’s still unclear exactly how each state will go about legalizing sports betting, but it’s likely that there will be a mix of options available, including online and in-person wagering.
+
+Legalized sports betting is expected to bring in significant revenue for states. In New Jersey alone, it’s been estimated that sports betting could generate as much as $100 million in tax revenue annually.
+
+The overturning of PASPA has caused a great deal of excitement within the gambling community, and there is speculation that other forms of gambling may also be legalized in the coming years. This could include online poker and casino games.
+
+It will be interesting to see how this landscape changes in the coming months and years as more states legalize sports betting. For now, it looks like gamblers everywhere will soon have more options when it comes to placing bets on their favorite teams.
+
+#  Delaware, Nevada offer full sports betting menus; Pennsylvania may not be far behind
+
+On Tuesday, the US Supreme Court struck down a federal law that prohibited most states from authorizing full-scale sports betting. Now, it's up to the individual states to decide whether or not to offer such wagers.
+
+Delaware was the first state to take advantage of the ruling, as its sports betting regulations went into effect immediately. The state's three casinos will offer betting on NFL games, along with other professional and collegiate contests.
+
+Nevada has been offering sports betting for years, and its casinos are well prepared to handle an influx of new customers. In addition to NFL and NCAA games, Nevadans can bet on major league baseball, basketball, and hockey games.
+
+Pennsylvania may not be far behind its neighbors. State lawmakers have been discussing potential legislation for months, and Governor Tom Wolf has voiced his support for sports betting. It's unclear exactly when such a bill might be introduced, but it's likely that Pennsylvania will offer a full range of sports wagers in the near future.
+
+The Supreme Court's decision is a major victory for the gambling industry. It could generate billions of dollars in new revenue for casinos and other businesses involved in sports betting. And it should create thousands of new jobs across the country.
+
+But the ruling is also a win for consumers. Law-abiding citizens will now have an opportunity to make legal bets on their favorite teams without having to travel to Las Vegas or Atlantic City.
+
+It remains to be seen how individual states will implement sports betting, but there's no doubt that this is a watershed moment for the gaming industry.
+
+#  Legal Sports Betting Begins in New Jersey
+
+After months of anticipation,[카지노 사이트](https://choegocasino.com/) legal sports betting finally commenced in New Jersey on June 14. Governor Phil Murphy placed the first bet, wagering $10 on the Philadelphia Phillies to defeat the Chicago Cubs.
+
+Murphy was joined by other officials and dignitaries at Monmouth Park Racetrack in Oceanport for the launch of sports betting in the state. Bettors were able to make a variety of bets on that day’s games, including propositions such as whether there would be a home run hit during the game and which team would score first.
+
+“This is a great day for the State of New Jersey and its economy,” Murphy said. “I am proud that our state will be leading the nation in authorized sports betting. This new industry will create jobs and generate revenue that will help fund important programs like property tax relief.”
+
+The state’s Division of Gaming Enforcement issued its first sports betting license to Hard Rock Atlantic City earlier in June. The casino began taking bets later that week. Other casinos and racetracks are expected to receive licenses in the coming weeks.
+
+Some lawmakers are pushing for even more widespread gambling in New Jersey, including legalizing internet gambling and allowing casinos to offer table games and poker. However, those proposals have yet to gain traction with Murphy or other state leaders.
+
+New Jersey is one of several states that have moved to legalize sports betting following a Supreme Court ruling in May that struck down a federal law prohibiting it. Delaware, West Virginia, and Mississippi also launched sports betting programs this month.
+
+#  NJSportsBetting.com offers in-depth look at the NJ sports betting landscape
+
+A recent study by Eilers & Krejcik Gaming, LLC shows that New Jersey is well on its way to becoming a powerhouse in the sports betting market. The study found that New Jersey's gaming industry is expected to generate nearly $500 million in annual sports betting revenue by 2023.
+
+The Garden State has been at the forefront of the legal sports betting movement since the U.S. Supreme Court struck down the federal ban on wagering on sporting events in May 2018. In fact, New Jersey was the first state to offer legal sports betting following the court's decision.
+
+NJSportsBetting.com is your source for all things NJ sports betting. We offer in-depth coverage of the NJ sports betting landscape, including news, analysis, and legal updates.
+
+In this article, we'll take a closer look at the findings of the Eilers & Krejcik Gaming, LLC study and discuss how they could impact the NJ sports betting market. We'll also take a look at some of the most popular NJ sports betting operators and preview some of the biggest upcoming sporting events in 2019.
+
+#  Americans Spend $150B Annually on Illegal Sports Betting
+
+Illegal sports betting is a massive industry in the United States.
+
+Americans spent $150 billion on illegal sports bets in 2017, according to a report from the American Gaming Association (AGA). That’s more than the gross domestic product of Iceland.
+
+The AGA report also found that almost all (97%) of illegal sports bets were made on football, basketball, and baseball. This is not surprising, as these are the most popular sports in America.
+
+Illegal sports betting is a major source of revenue for criminal organizations. The proceeds from these bets are often used to fund other illicit activities such as drugs and human trafficking.
+
+The federal government has made addressing illegal sports betting a priority. In 2011, then-Attorney General Eric Holder announced Operation Choke Point, which was aimed at cracking down on illegal gambling operations. However, the crackdown has had limited success.
+
+One reason for this is that it is difficult to enforce laws against illegal gambling. The operators of these operations are often located overseas and are difficult to track down.
+
+Another challenge for law enforcement is that many Americans see illegal sports betting as a victimless crime. They don’t see it as being any different from gambling at a casino or playing poker online.
+
+There is growing support for legalizing and regulating sports betting in the United States. This would allow the government to collect taxes on these bets, and it would also help to crack down on illegal operations.
+
+Many states are already moving forward with plans to legalize sports betting. In May 2018, the Supreme Court struck down a law that prohibited most state-authorized sports betting. This opens the door for states to legalized sports betting within their borders.
